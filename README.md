@@ -1,3 +1,3 @@
-# lakewashington
+# baseball videos
 
-2022 Lake Washington Baseball Club 12U Videos 
+2022 Videos of Kenji's baseball games
